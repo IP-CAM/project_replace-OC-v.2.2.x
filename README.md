@@ -1,1 +1,1 @@
-Description will be here soon
+Copying products from category to category
